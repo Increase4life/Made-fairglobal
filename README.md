@@ -1,2 +1,0 @@
-# Made-fairglobal
-madefair global 
